@@ -22,6 +22,6 @@
 
 ### Contact
 
-If you want to contact with me you can reach me at [Twitter](https://twitter.com/unknown_tht),
+If you want to contact with me you can reach me at 
 [Linkedin](https://www.linkedin.com/in/shripad-thorat-14278213b)
 
